@@ -1,2 +1,0 @@
-# kindtired-github.io
-
